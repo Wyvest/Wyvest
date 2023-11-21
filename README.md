@@ -1,1 +1,1 @@
-![IMG_1191](https://user-images.githubusercontent.com/45589059/203755760-a1f6f22b-3523-4f33-a1d1-42246b7f7b01.jpeg)
+![a0ed469901867023dba4c8b01a18942d](https://github.com/Wyvest/Wyvest/assets/45589059/3bdb77d5-3d36-4f32-a3bf-b5b45b2b9db6)
